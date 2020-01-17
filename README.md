@@ -1,1 +1,3 @@
-# artic-dogs-ego-e-felicidade
+# Filme Artic dogs - Ego e Felicidade
+
+Esse filme conta a história de uma raposa das neves que odiava ser uma raposa, que gostaria de ser um cachorro, pois como raposa da neve, ele se camuflava na neve e era ignorado pelas pessoas mas os cachorros entregadores eram os hérois da vila, esse era seu sonho, que correu atras o filme todo e quando alcançou viu que não era aqui que lhe trazia felicidade, pois sacrificou o amor, a identidade, amigos, alcançou o que queria mas não era feliz e os problemas aumentaram cada vez mais, mas quando aceitou quem era reintegrou seu incosciente e sua anima alcançou a verdadeira felicidade.
